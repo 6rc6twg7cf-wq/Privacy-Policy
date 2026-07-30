@@ -59,5 +59,5 @@ This Privacy Policy may be updated from time to time. Updates will be posted wit
 
 For questions about this Privacy Policy:
 
-**Developer:** [Your Developer Name]
-**Email:** [Your Email Address]
+**Developer:** Galaxy Studiossss
+**Email:** emmetburke319@gmail.com
